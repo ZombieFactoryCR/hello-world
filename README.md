@@ -1,5 +1,5 @@
 # hello-world
 
-Randito en Random :v
+Randito el Random :v
 
 Probablemente vas a leer esto, xd.
