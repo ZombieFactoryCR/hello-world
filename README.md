@@ -1,2 +1,5 @@
 # hello-world
-q
+
+Randito en Random :v
+
+Probablemente vas a leer esto, xd.
